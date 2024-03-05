@@ -1,0 +1,1 @@
+# csgo-price-helper-xtension-privacy-policy
